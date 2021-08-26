@@ -1,0 +1,1 @@
+Hi I'm Alex Brissette. A little bit about me is that I was in the Army for 6 years from 2013 to 2019 and did one tour in Afghanistan. Outside of school I love to play video games and watch TV. I am orginally from Houston Texas and came out to New Mexico after i left the millitary because my Dad offered free rent while i was going to school. 
