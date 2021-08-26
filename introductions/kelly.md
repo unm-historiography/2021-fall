@@ -1,0 +1,5 @@
+Hey guys!
+
+My name is Kelly Idali Salaiz and I am a senior, graduating in December with my Bachelors in History, Minor in Political Science. I plan on moving to Atlanta in Spring 2022 and pursuing my Masters of Arts in History at Georgia State University. I hope to use my degree to do research and publish books, articles, etc., but who knows? There are so many avenues where history can take you! I'm excited to be taking this class because historical writing and narrative has become one of my favorite themes to explore in history classes. I've taken so many classes where we explore historical truths and mistruths that it's become something I actively research and write about in my classes.
+
+In my free time enjoy reading whatever Tik Tok has recommeded to me, love going to the movies, and talking to my best friends. They are a major reason why I'm considering grad school on the East Coast, since that's where they all live. I work pretty much full time as a bartender/server, and it's been quite the year being in food service but we make the best of it. I'm excited to take this class with you all, and look forward to the discussions we'll have!
