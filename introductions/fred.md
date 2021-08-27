@@ -4,4 +4,4 @@ This is my introductory post that can be a rough guide to your own that you will
 
 Obviously I like teaching historiography, but my primary research interests are in the history of food, diet, and health. I've done a bit of experimenting in the digital humanities (specifically computational approaches to history), which overlaps quite nicely with historiography, but I found I much prefer reading about food.
 
-I've callled ABQ home for about 8 years, which has gone by in a flash. I never imagined living in New Mexico, but that was ignorance on my part. As someone who likes to be outside (and away from the internet and other humans) as much as possible, I continue to enjoy exploring the unrivaled natural beauty (and history and beer) of the NM landscape.
+I've called ABQ home for about 8 years, which has gone by in a flash. I never imagined living in New Mexico, but that was ignorance on my part. As someone who likes to be outside (and away from the internet and other humans) as much as possible, I continue to enjoy exploring the unrivaled natural beauty (and history and beer) of the NM landscape.
