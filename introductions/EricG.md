@@ -1,0 +1,2 @@
+Hello all,
+I am Eric and this is my final semester at UNM for my BA, hopefully. My major is in History with a minor in Integrative Studies. My major hobbies outside of school are collection Lego minifigures and watching movies with my family.
