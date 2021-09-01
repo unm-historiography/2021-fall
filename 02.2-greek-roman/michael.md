@@ -1,0 +1,15 @@
+## Lemon Reading Reflection
+
+*How are conceptions of time and progress important to the meaning of history (even today)?* Simply put, our conceptions of time and progress affect what we consider to be "history". For example, if some sort of myths are widely believed to have happened at some point in the past (i.e the myths which the Greeks once believed in), then those events may be considered to be "history" by those individuals, despite the evidence, or potential lack thereof, of the event(s) actually having occured.
+
+*Does studying history imply it is to facilitate some kind of human “progress”?* I would say yes it does. Like the saying goes, in its many iterations "those who don't know history are doomed to repeat it". Knowing history enables us to avaid the mistakes of the past, thereby progressing humanity past them. You can also answer "yes" to this question while defining "progress" differently as some Greeks did. According to a teleological Greek model of history, subjects "progress" from a beginning, growing until it can no longer be sustained, then withering away and dying or even being rejuvinated (35).
+
+*Why should we care about Augustine in a historiography course?* We should care about Augustine because he challenged a prominent Greco-Roman view of history, namely, that it is infinitely cyclical. By contrast, Augustine conceives of time as part of the finite material world and therefore as being linear, with a beginning and an end. These different conceptions of how history moves definitely impact how we view and ultimately, how we write history.
+
+*How does Lemon think we should compare Greco-Roman vs. Christian histories?* Though Lemon mentions supposed differences between "cyclical" classical views of history and the "linear" Judeo-Christian view, Lemon believes that we should look at the two both holistically and critically. Not only does he challenge the idea that the two views are so sharply distinct, but he also asks some other questions which may not be so obvious to ask, such as how revelant history actually is to Augustine, which shows that he wishes the topic to be tackled from all angles, answering these questions through deep digging and investigation. Such investigation would surely lead one down many paths besides simply philosophical ones, such as theological, psychological, social, etc. He therefore concludes that it is impossible to have a definite conclusion, implying by his "heuristics" that the reader should conduct these investigations and come to their own conclusions.
+
+What other ideas were especially interesting? One idea that I find incredibly interesting which this reading implies, is that though two beliefs systems may be radically opposed, the differences or similarities of the corollaries of these belief systems in terms of the philosophy of history may not be so clear cut.
+
+*Informed Qustions*
+How does Christian theology affect how relevant or irrelevant history is or ought to be?
+Can philosophies of history based on differing belief systems be definitively differentiated, or will there always be some sort of potential overlap?
