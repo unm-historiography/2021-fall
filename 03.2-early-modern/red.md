@@ -1,0 +1,7 @@
+By the way of the readings, I would say that history writing is more set up to learn from the lessons rather than what literally happened in said past. The way there past is addressed is more along the lines of trying to return to the old ways, as of the perspective of the times. As said in the Cheng’s work, one of the interests that the Renaissance showed in the studies of history was in antiquity and how some of those cultures are considered the “pinnacle[s] of civilization”.
+
+This could also coincide with the fact that there were other events going on that also had a change of outlook when it comes the way they look at history. The Protestant Reformation was occurring and, though today considered more theological, the Reformation changed the way the a lot of Christian practitioners on how they view the bible. So, both ancient and biblical histories were in the proverbial spotlight.
+
+On the concept of “The Prince”, Machiavelli also used the actions (both good and bad) of past and makes his statements based on those occurrences. He uses a lot of references to other countries and gives a lot of comparisons to them as well. There is a good sense that he is aware of the problems that could likely befall the leaders of these places and is trying to put this learning all together as a rulebook for those in power.
+
+When it comes to the times in which Machiavelli wrote, the Renaissance was going through a lot of the classes were going through turmoil as well.
