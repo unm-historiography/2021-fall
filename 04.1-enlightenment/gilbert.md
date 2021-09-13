@@ -4,4 +4,4 @@ As religious control waned in the Renaissance and continued to decline during th
 
 All of these things helped in changing how people’s conception of progress evolved in the Enlightenment. As this change took hold, traditional notions on the superiority of antiquity faded and the idea that humanity could be improved through rational change. This idea reminded me of Machiavelli’s use of lessons learned from historical events in deciding the best course of action in the present. 
 
-Was it the Church’s broad control over conceptions on progress that stifled innovation in historical thought during medieval times?
+Was it the Church’s broad control over conceptions on progress that stifled innovation in the writing of history during medieval times?
