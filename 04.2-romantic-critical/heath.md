@@ -1,0 +1,14 @@
+Romantic history is a view of the past through rose colored glasses. By that I mean to say that it is a way of looking at history that seeks to make nations or individuals seem perfect. Often times this came in the form of nationalistic pride for things such as the French or American revolutions. In looking at history this way one often simply accepts tradition and applies it to morality. Interestingly enough you can use this way of history both to try and change something within society or try and preserve conservative values. In the case of changing current society, you could have a “Make America Great Again” view in which someone argues that the past was far better than the present and we must return to the original strength once held. On the other hand, you could also argue that in the past we were once barbarians and current society has advanced far more in terms of education, reason, or any number of disciplines. Critical history stands in juxtaposition to Romantic history in that, with this view one questions the legitimacy of history and attempts to prove or disprove it. Critical history also often has a less biased view of the past, although it can still stand to have a negative view on the past.  
+
+ 
+
+Von Helmboldt's chapter describes the job of the historian as merely being a replicator and not having any intrinsic artistic or creative ability. This of course mirrors the importance, in Cheng’s chapter, of ensuring the factual integrity of history. I did enjoy the metaphor as historians should not apply any part of themselves, be it beliefs, biases, or any personal aspects of themselves to the past; they should merely analyze factual occurrences in a critical history fashion. Furthermore, Helmboldt emphasizes the importance of understanding the way in which various historical events are interconnected with things like religion, politics, and even pure human emotion. The most interesting portion of his writing discusses the unexplainable “energies” that have to be assumed in history and will likely never be fully understood. The best example being the creation of the arts in ancient cultures where their hadn’t been before. To some degree the human spirit is responsible for many historical events, and yet we cannot factually quantify or qualify it. It makes you wonder world how will energies and feelings be seen in the distant future, with only major historical events being remembered by the public.  
+
+ 
+
+1) Can a truly critical view of history ever give a negative reflection of the past? Would that not dilute the pure factual purpose of it? 
+
+ 
+
+2) Does individuality effect historical context? 
+  
