@@ -1,0 +1,10 @@
+What would you say are the key differences between Romantic and Critical history?
+
+There are ideas of dealing with romantic thinking and critical thinking. One deals with making decisions with the heart or feelings, and the other deals with thinking in ways of philosophy and literature.
+Give a few examples from von Humboldt’s article that illustrate characterizations of history that appear in Cheng’s chapter. 
+
+Since Humboldt’s definition of what a historian’s purpose is is to illustrate what actually happened. In other words, to point out the facts and to get to the point without there being any feelings or other motives behind it. In the Cheng reading, there is a definition for how Enlightenment thinkers saw history in a more romanticized way. The chapter mentions how the thinkers tried to view events and ideas in history in both a romantic way and still used literature and philosophy to explain them. There is also an example of  the Humboldt reading expressing how historians and poets or people of literature and philosophy are different fields, but still can be explained in similar ways. He says,``It may seem questionable to have the field of the historian touch that of the poet at even one point.” This is also evident in the Cheng reading when “Romanticism was defined as a cult of the artists that privileged the artist as a figure who possessed a special ability to communicate with the divine and access higher truths through the use of the imagination and emotion.” Therefore, the works of the poet are more emotionally explained by the artist rather than the historian who must try to explain using facts and critical thinking.
+
+What’s most interesting to you about this description of a historian’s task?
+
+I think it's interesting that both readings seem to explain how the historian is different from the artists and the poets, but yet still use the same or similar methods to explain the way things are. I think a historian does need to speak the truth and hit all the bases of the facts, but also must understand the emotional side or things in order to really appreciate the history they are telling.
