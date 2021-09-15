@@ -1,0 +1,19 @@
+Francisco Raby-Mondragon
+
+History 491
+
+8-15-21
+
+
+
+There are some examples in chapter three of the text, “Historiography,” that Eileen Ka-May Cheng, the author, places in Romantic and critical history, including George Bancroft, Leopold von Ranke and Barthold George Niebuhr. While they had different views on how theory is written, their ideas were more biased towards nationalism. They sought to challenge the social order in their writings. “Ranke’s desire to bring together scientific history with the view of history as art” (61).
+
+I believe Cheng included this in the chapter because “The rise of Romanticism both contributed to a greater interest in the past for its own sake and shaped the way in which historians expressed that interest” (62). This was important to inform people how important this time was in history. Romantic was a broad term that included artists and thinkers of different forms of art. This has been subject to sharp debate both among modern commentators and among Romantic thinkers. I believe it is important that Cheng includes this to show how important it continues to be in thinking for historians today. Cheng also included in this chapter that Romantic thinkers differed from their eighteenth-century predecessors.
+These nineteenth century historians saw themselves as artists but still tried to achieve the same goals as Romantic artists and historians. During the Romantic, there is more focus on the individual who seemed directly opposed to the growing emphasis on nationality. Consequently, many of the leading Romantic historians of the nineteenth century, including Thomas Macaulay (1800–1859) and Jules Michelet (1798–1874), were very strong nationalists. It seems Cheng wanted to share what was important at the time to the people.
+
+Ranke paid more attention to an earlier tradition of critical scholarship. I appreciate that Cheng also adds Niebuhr believed that it was possible to piece together the fragments of early Roman history and construct a more complete and reliable version of the subject than that provided by existing accounts. This is a very good adaptation to the text because it shows how critical history is a part of the future because today, we need sources that are notable. Sometimes the early text of history – Romans and Greeks - exaggerate about the numbers and the days it took to complete a battle.
+“What distinguished Ranke from his predecessors and accounts for his influence was not just the extent to which he put critical methods into practice, but the graduate seminars that he established to train students in those methods, which became part of the required training for historians at all German-speaking universities by 1848. Not only did these seminars enable Ranke to disseminate his methods, but in his assumption that history was a science that required specialized training, Ranke also laid the basis for the development of history into a professionalized discipline (71).”
+Cheng states in the chapter that Ranke’s references of God indicated he saw no conflict between his historian perspective and his religious beliefs. This is very important because Ranke grew up in a different time than 18th century historians. Ranke lived in a more modern world with different conflicts.
+
+George Bancroft was an American historian born in New England in 1800–1891. Cheng adds that his background pointed to the importance of the region of the Americas. Bancroft writes about the history of the United States as well. I appreciate how Cheng adds the importance of the region over the nation.
+Also, during this time, Bancroft differed from his New England colleagues in his political sympathies. It is interesting to see that Cheng states that this account of the origins of liberty served political and social purposes, not any religion. It is also interesting to realize that many people have different views, even when living in similar places.
