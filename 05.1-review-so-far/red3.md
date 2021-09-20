@@ -1,0 +1,18 @@
+So far, the way history has been written and recorded over the span discussed in class is rather interesting. From topics spanning from, “enlightened” to “philosophical”, and the “romantic” to the “critical”, I can’t say that some of the perspectives may be accurate in their descriptions, but at the same time I’d be hard pressed to say that they are eye-opening. They’re eye-opening to the way we as human and people of this pale blue dot think of the past and its uses for the present. In essence the way that history has been addressed has changed greatly of the course of these past centuries. Ideas and concepts have gone in and out of practice as more has been either discovered or challenged and because we are granted the perspective of the present, we can look at these to look at these and reflect.
+
+Continuities
+
+First off, the act of recording history is probably the most liner thing that has and will happen over the course of time. There will always be records of the times and event until the end of time. From what I’ve noticed, there are some obvious rules for the how to approach the documenting of history as each historian more or less follows. The best, and probably the most blatant from Wilhelm von Humboldt’s, “On the Historian’s Task”. The text said that “the historian’s task is to present what actually happened.” Granted, the “actually” part of that statement is questionable at best, but I would still argue for the validity of the phrase. Whether or not the way the event is recorded correctly, it was still recorded. So, in essence, it’s correct. The way the history is used is another topic entirely.
+
+Discontinuities
+
+Now, as the sands of time trickle to the bottom of the metaphorical hourglass, there are things that have also faded out the of the practices of history documentation. I would say that one of these practices is to look at history in a secular manner rather than through the lens of religion. For centuries, I would say, prior to the Enlightenment era, the church was a huge source for knowledge as well as the past as said in the Metahistory article of the Enlightenment. The article also pointed out how the events changed the through processes and the change to a more philosophical as well as scientific with individuals like Francis Bacon and Karl Marx.
+Uses
+
+Now, all this talk about how history is recorded and such, but what about the uses of said histories. Throughout time, it is next to impossible to find moment that reminisce about another moment prior in the timeline and that is where the uses fall into place. One of the main questions that was coined in the beginning of the course and continues to be the mantra is “what is the point of recording history, what is the purpose?” Well, so far I have seen many different answers to this question. First, we should look at the Age of Enlightenment. This age saw a look back to the Greeks and Romans in high regards. this is example of my first point: the usage of vindication. This also applies to the romantics of history recording. The romantic outlook mostly focuses on the glory of a part of time. America has that same process. Chang called it “American Exceptionalism” and I can concur with the statement as America has always had the whole "George Washington chopped down the cherry tree" and the "Manifest Destiny". These things didn't really happen or have a real fate complex, but they are integral to the historical importance of our past.
+
+Question #1
+We talk about the past and such, but what about the present. What are the different ways that we will be discussed.
+
+Question #2
+In what way were the people in the past hoping to be remembered?
