@@ -20,4 +20,4 @@ If we understand history as cyclical in nature, will be do better the next time 
 
 - How can we as historians of today develope better techniques in story telling without influencing the history lived by the person? 
 
-- How can a more scientic use of source material result in a story others will find meaningful? 
+- How can a more scientific use of source material result in a story others will find meaningful? 
