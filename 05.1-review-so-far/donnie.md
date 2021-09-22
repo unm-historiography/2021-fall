@@ -1,5 +1,5 @@
 # Historiography Reflection
-## _Taking into consideration the chaging character of historical wirtting_
+## _Taking into consideration the changing character of historical wirtting_
 
 The way in which history is written plays a large part in the way people have been remembered. Points of view mixed with style and technique give voice to a story remembered, but is it the real story? The argument of how to gather and record history started early. Even the reason for recording events of the past that would turn into remembered History was argued and should be. Looking at these reasons and results has brought us to this point, reflecting upon the ways in which we use history today in our gathering and understanding of who we are. The purpose of history, the historian, and the pursuit of recorded historiography has changed over time bringing a larger, clearer picture into focus. 
 
@@ -20,4 +20,4 @@ If we understand history as cyclical in nature, will be do better the next time 
 
 - How can we as historians of today develope better techniques in story telling without influencing the history lived by the person? 
 
-- How can a more scientic use of source material result in a story others will find meaningful? 
+- How can a more scientific use of source material result in a story others will find meaningful? 
