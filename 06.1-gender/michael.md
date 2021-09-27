@@ -1,0 +1,15 @@
+## Gender Histories Reflection
+
+Apar from arguing that historians ought to pay mor attention to the roles of women in the historical past, I believe that the article is trying to argue some other important things.
+
+First, it's trying to argue the importance of the raltionship between male and female experience in historical writing. Not only that, it is also arguing that historians ought to bring to light the impact, gravity, or otherwise effect of gender relationships both in the historical past, as well as in how it exists today being a development in history which is not yet complete or defined in the same way that "past" history is. Furthermore, the article argues that the word "gender" is itself is a deliberate tactic, so as to more comfortably discuss not only women in historical scholarship, but also the relation between women, families and ideologies surrounding gender.
+
+Another point of the article is to highlight and explain different approches feminist scholars have employed in their attempt to understand gender. One very important approach, which the article discusses to a rather substantial degree is the Marxist approach to the issue, which is an effort to understand gender in history in materialist terms. Another such approach is the psychoanalytical approach, which seeks to understand the creation and development in gender identities.
+
+Despite these approaches and their appeal, however the article argues that they are limited in their capacity in understanding gender and its relation to history.For one, it argues that certain variations of the former approach sever the discussion of gender from its relationship to larger things outside the family or household, such as society, politics or the economy. Additionaly, the article argues that to represent "subjectively originating antagonism between males
+and females" as a concrete and definite aspect of gender is troubling, arguing that the discussion ought to reject this rigidity, and should rather be willing to criticize these assumptions, as well ass the historian's approach to understanding history; deamphasizing the quest for singularities in origins and emphasizing the complexity and expansiveness of the causes and situations of historical developments, especially in understanding how gender relates to them.
+
+The big picture of the article, I believe, is not only to make sure that women are "noticed" for their importance in history as a rejection of their largely being overlooked within traditional scholarship, but also that all approaches to gender issues, inside of history and out, ought to be questioned, criticized and put under strict scrutiny in order to accurately represent the complexity and vastness of gender issues, regardless of the context.
+
+### Informed Questions
+To what degree has history been "lost" as a result of the lacking in discussion of gender within traditional historical scholarship? Can these attempts to bring gender to the forefront of historical discussion and scholarship in any significant way recover a more complete sense of one's general understanding of history?
