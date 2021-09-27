@@ -10,10 +10,8 @@ It’s clear that the argument is not simply that historians should pay more att
     
     The author’s theory of gender is based on the idea of gender as a constructed social relationship dependent on social imagination regarding perceived sexual differences, and also on the idea of gender being a “signifying relationship of power.”
     
--
 
 “It is not sexuality which haunts society, but society which haunts the body’s sexuality.”
 
--
 
 I see a recent emergence of a pro-natalist social movement in Western countries related to declining fertility and the growing dominance of liberal feminist conceptions of femininity and the role of the woman as homemaker and child-bearer. Are social attitudes regarding gender cyclical in nature? What does the promise of possible technological release from the “trap of reproduction” mean for gender in modern histories and gender in society? Are we entering an era of post-feminist thought regarding the rise of transgender and asexual histories or is this tradition firmly rooted in feminism?
