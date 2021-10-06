@@ -1,0 +1,13 @@
+I think the most interesting thing concept is the article as a whole and the general attitude it holds. This paper reads almost as a if conspiracy theory. It has extremely valid points in that it explains the process by which a phenomenon of exclusion can occur as opposed to explicitly stating it with examples. I do believe that this very easily could happen given the incredible power of essentially deciding what history is would easily fall into the hands of the upper class of society. With the ability to decide what history can be stored in archives a person in power could very easily exclude histories that they are biased against. It is more likely than not that they would include only objects that solidify their power. For example, if someone essentially makes an entire culture disappear, they could simply exclude any knowledge or information about their history from ever being remembered. The thoughts and knowledge someone has defined their culture; thus, without ever being able to read their journals or understand their religion we could never be able to remember that society for what it was.  
+
+This has happened somewhat in relation to eastern and western philosophy. When it comes to “the best philosophy” Eurocentric historians would seek to honor Greek and Roman Philosophers. If they did so they would give credence and legitimacy to their ancestors. As the descendants of the best ancestors, the deciders of history could strengthen their own position in the social structure of the world.  
+
+It seems the goal then would be to have one's own history be the best in order to increase the respect given to your country and consequently your philosophies. The only way to avoid this imbalance of power would be to push the history of less represented cultures into archives. Only through an increased representation could new cultures and their philosophies be understood. Hopefully the goal of understanding the new cultures is to spread their ideals and morals in order equally represent a population.  
+
+I found the least interesting idea to be that less represented populations can overcome upper society by simply refusing to take part in archives. The only way to represent a population is via facts and understanding of the past in the form of culture. Not being represented in archives means the destruction of your history. Would not being remembered be the simplest way to have your cultural image be torn away? Archives are necessary to understand the progression from your past to present.  
+
+ 
+
+1) How can manipulating what histories are remembered effect the morals and ideals of a society? 
+
+2) How can we ensure equal representation In archives of various cultures? 
