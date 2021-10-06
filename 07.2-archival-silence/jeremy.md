@@ -1,0 +1,11 @@
+Reading reflection
+
+•	Softball question as we wind up the first half: What ideas in the article were most and least interesting to you?
+
+There were many ideas and methods explored in the article that I found interesting and to be honest I didn’t find anything that was least interesting to me, so I will only discuss what I found interesting and then include a question section. The idea that was most interesting to me in this article was what was used in feminist literary of “listening to the silences” This tactic is where we can read the archive and look for what’s not there as opposed to what the view of the powerful is asserting in the archive. I also liked the idea that Terry Cook put forward to see marginalized people better with the introduction of citizen state interactions. This method is used to show underrepresented groups in society from records from places like prisons, and hospitals and schools and others mentioned in the article where underrepresented groups show up more often than in other more prestigious places that may not show up in the traditional archive. I started to think about minorities and prison statistics and school statistics where we can see systemic problems in society that the official archives can be leaving out or ignoring because it doesn’t fit the narrative of those in power.  It’s important to acknowledge these trends and statistics in society to show a clearer picture in order to address these issues in a given society. 
+
+I also liked the idea that Verne Harris says here “Harris warns that archivists must not further marginalize the marginalized we must resist the urge to speak for others, we must not romanticize them, and we must attempt to avoid reinforcing the marginalization by naming it.” (page 12) Harris makes a great point that it’s better not to tokenize underrepresented people in the archive and by doing so you are marginalizing them even more by giving an unrealistic depiction of these underrepresented people. 
+
+Question 
+
+Although the term “woke” has been seen as divisive and a non-starter for those in power isn’t wokeness necessary in seeing the plight of underrepresented communities that have been excluded from the historical archive? 
