@@ -22,7 +22,3 @@ Proper paradigms differ on three levels: *“internal, contextual, and metatheor
 Pidgin paradigms *“claim to use theory but often does not constitute a coherent theoretical approach”* (47). Pidgin paradigms often borrow from other theoretical approaches to pose new contextualization on constraints, transposing it into a hybrid. It's what is fashionable at that time. 
 
 Paradigms are important to Fulbrook because *"historical accounts, interpretations and explanations are verifiable or refutable only within paradigms”* (p. 68). The findings of historical investigations are largely dependent on the questions raised by historians. Paradigms can explain compatible and incompatible issues within the historical theory frameworks.  
-
- 
-
- 
