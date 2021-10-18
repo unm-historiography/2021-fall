@@ -1,0 +1,46 @@
+# Reflections on Fulbrook, Historical Theory I
+
+**Chapter 1** 
+
+Fulbrook introduces the main idea of the book quite well in her opening chapter, focusing mainly on the longstanding tension between the postmodern interpretation of history and the traditional empirical interpretation of history. While we’ve explored this tension in detail before, Fulbrook reminds us of the inferred link between history and progress, historical fragmentation as a result of differing perspectives, the questionable utility of history in a postmodern framework, and the difficulty that comes with judging which historical perspectives ought to be considered valid. 
+
+Interestingly, Fulbrook repeatedly noted that competing historical frameworks are typically rooted in partisan differences among those writing history (i.e. Marxist histories vs. non-Marxist histories). Throughout the semester, we’ve touched on how history can be used as a tool for theological or ideological confirmation, but Fulbrook seems to be highlighting how even in the postmodern landscape partisan influences color historical writing in such a way that it can be difficult for historians to discern which histories are valid and which are merely spin. She uses the example of Nazi Germany and the Holocaust to illustrate how dueling perspectives on the same historical phenomenon can be troubling for those trying to understand that phenomenon.
+
+In the case of Nazi Germany, the difference in perspective is divided on intentionalist and functionalist lines. Funnily enough, I’m taking the graduate section of the History of Fascism currently, and my research paper is about how historians have offered competing views of the role of Nazi propaganda in German society. Some historians argue that Nazi propaganda actively molded public opinion in Germany while others argue that it merely took advantage of existing social animosities. I’m looking forward to learning about Fulbrook’s method of adjudicating historiographical disputes such as these without defaulting to either relativism or empiricism as a sole defense.
+
+**Chapter 2**
+
+Following in the tradition of Ranke, who advocated that the office of the historian is to present the past “as it really was,” *the empirical approach to history revolves around using empirical evidence to construct a timeline of the past from which current generations can learn from.* While this may at first seem like an intuitive and desirable method of writing history – after all, who doesn’t want their interpretation of history to be empirically justifiable? – attempting to reach a standard of objectivity within historical writing introduces a teleological paradox. To start with, the very notion of empirical evidence is misleading, as evidence is gathered selectively and once in the historian’s possession, is interpreted subjectively. Furthermore, *empirical histories presuppose that historical knowledge can be uncovered and pieced together to make a whole linear timeline*, when in reality historical knowledge is fragmented across numerous groups of people throughout the world and across time. To compensate for this fact and maintain the appearance of objectivity, *empirical histories construct metanarratives that are themselves products of the historian’s political persuasion, thus imposing a purpose onto history rather than simply investigating the causes of historical phenomenon.* 
+
+Fulbrook characterizes the postmodern challenge as a rejection of the dominant metanarratives and an embrace of fragmentation, but also a shift toward being more concerned with the use of language, the role of culture, and space for discourse in historical writing. This necessarily implies a departure from the traditional means of doing history, such as relying on archives as a source of legitimacy – in fact, as we’ve seen, postmodernists are actually quite critical of these traditional methods of historical writing. *The crux of the postmodern argument is that we simply do not have unmediated access to the past, and as such all of our histories must be regarded as a text* written for a specific audience with an agenda in mind, not as a simple recitation of facts. Postmodernism results in what Fulbrook calls **“perspectival pluralism,”** referring to a state in which, *because there is no true interpretation of the past, an almost infinite number of stories about the same past can simultaneously claim to represent reality, and postmodern theory provides little criteria for how one should judge the accuracy of these dueling histories.* In this way, postmodernism can be seen as somewhat self-defeating on a theoretical level. 
+
+**Chapter 3** 
+
+In the most basic sense, paradigms are theoretical frameworks which consist of a number of assumptions about the world at large. Fulbrook introduces the concept by noting important paradigm shifts in scientific understanding, such as the shift from geocentrism to heliocentrism or the shift from Newtonian physics to Einstein’s theory of relativity. These shifts in paradigms subsequently altered the way that people thought about the universe. *As far as historians are concerned, paradigms are a set of assumptions about the past and our understanding of it.* Fulbrook notes that historical paradigms are constructed on a theoretical (how does the world work?), contextual (what groups are shaping history and what are their beliefs/attitudes?), and metatheoretical (what is man’s relationship to society?/what is the driving force of history?) basis. 
+
+To begin with, every historian operates within **implicit paradigms**, even when they are unaware of it. *History as a practice requires careful selection of sources and deliberate explanation of causal forces, and because of this, the narrative constructed by each historian must exist within a specific implicit paradigm, perhaps unknown to the historian themselves.* For instance, there are many competing narratives put forth about why Nazis were able to ascertain power across interwar Germany. While one historian may focus on the party politics of the Reichstag in Berlin as a model for the rise of Naziism, another may look instead at the wider cultural traditions of various rural German towns that fostered sympathies for fascism even before Hitler came to power. While neither of these historians may be consciously aware of their argument’s presence in a greater historical framework, their work nonetheless functions under a set of implicit assumptions about history. 
+
+What Fulbrook calls **perspectival paradigms** are what emerge when historians become aware of the frameworks in which their work is set (and/or set against) and begin to contemplate the many avenues for analysis on a single topic in history. *Fulbrook offers a metaphor of a single tree being photographed from different angles to illustrate how perspectival paradigms function.* Perhaps a good way of thinking about it is with our recent exploration of historical categories or lenses of study, such as gender histories or postcolonial histories. While multiple historians may study the same period, it is the exact perspectival paradigm they are operating within will determine what conclusions they come to. 
+
+When historians ascribe to strong or strict paradigms, they indulge in what Fulbrook calls **paradigms proper**. These are *paradigms in which the assumptions being made are deeply rooted in the historians political, philosophical, or moral beliefs and as such these assumptions inform their work to a greater extent* than alternative perspectival paradigms or the historian’s unknown implicit paradigms. As an example, Marxist histories typically subscribe to a somewhat strict understanding of the larger Marxist analysis of society, thereby informing their conceptualization of history as essentially one long class conflict. Paradigms proper can be damaging to a historian’s argument if the reader does not share the deep seeded political or moral sentiments which justify the historian’s use of a strict paradigm like Marxism or structuralism. 
+
+Finally, much in contrast to the strict paradigms described above, **pidgin or magpie paradigms** are not fully formed theoretical frameworks in and of themselves. Instead, these paradigms *function as an amalgam of many different theoretical assumptions about the past.* This eclecticism allows historians some fluidity in tailoring their historical theory to fit the purpose of their study, and moreover enables historians to think outside of their dominant theoretical framework. However, if used lazily, pidgin paradigms can confuse readers and obscure the historian’s larger point. 
+
+Paradigms are important because of how influential they are in the work of historians. The paradigms a historian operates under will inform not just their approach to writing history, but also the historical narrative they eventually produce. Put simply, *paradigms actively shape how we as a society interact with and conceptualize the past.*
+
+Questions: 
+
+_1. In a post-modern landscape, what criteria can we use to determine the value and or "correctness" of competing historical narratives?_
+
+_2. Of the types of paradigms Fulbrook listed in Chapter 3, which do you find yourself usuing most in your historical research?_ 
+
+
+
+
+
+
+
+
+
+
+
