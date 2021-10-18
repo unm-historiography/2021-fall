@@ -1,0 +1,15 @@
+I think the most important recap I got from this reading was the most boiled down truth of historiography. This is the idea that truth in the context of history simply is not real. The calm energy of Fall Break gave me hope for historical romanticism again, so it was good to get slapped in the face with truth again. (Kidding) However this chapter went into detail to speak about the way in which history is simply a reconstruction of the past via a historian's chosen viewpoint. Clearly as we’ve discussed it can be based on unknown bias or known bias. In the end it can only be through the combination of multiple of these viewpoints that we get closer to the actual “truth;” though the complete actual truth can never actually be accomplished. 
+
+ 
+
+The Empiricist method of history is that of attempted release of bias in order to view historical events and people from a more critical viewpoint. This is the faction of professional historians and archivists. Naturally this attempt to understand history is arguably used in modern historical views. I lack better words I would say that empirical history is based slightly more in romantical history than postmodernism in that empirical history attempts to string together historical events via a narrative while post modernists reject the narrative entirely. This of course is extremely difficult to do given that history without a narrative is essentially an Un useful string of events. Would excluding any narrative from history not displace any purpose for history? For example, how could we draw lessons and teach if we don’t have a story to be told from history? These two positions have failed to reconcile as a desire to remove bias from history acts as “the rock” and the inherent human need for story Tellings acts as “the hard place.” 
+
+ 
+
+Paradigms are the lenses or viewpoints through which historians can write their history. Implicit paradigms are those that are inherent to each of us. Personal bias encompasses most implicit bias in addition to the way each of things differently from each other as these effects what we choose to include, and we don’t. Perspectival paradigms are those biases and personal choices that we can address and decipher. Paradigms proper are those lenses of viewing history that affect the political, economic, and cultural views of the past. They are a way of framing the past in order to justify one's society. Pidgin Paradigms are in a way “fake perspectival paradigms.” These are the views in which we pick and choose various parts of biases and paradigms to create an entirely new one. Paradigms are so important to Fullbrook in that they are what makes history, essentially, they are the lenses and viewpoints of history that we have been speaking about all semesters finally given a name. 
+
+ 
+
+1) Under which paradigms do the empirical and postmodern camps fall into? 
+
+2) Is the mixture of paradigms the best way to further our understandings of the past? 
