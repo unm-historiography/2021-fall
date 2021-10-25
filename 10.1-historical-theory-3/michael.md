@@ -1,0 +1,21 @@
+## *Historical Theory* III Reflection
+
+In the beginning of Chapter 5, Fulbrook makes clear the inescapability of "concepts" when working with history. In other words, when thinking about the past, the historian thinks about it in a way which severs it necessarily from the time and in the manner that it actually happened. The particularities of these concepts are of no import in this matter in the eyes of Fulbrook: this is true for all historical thinking no matter what. Additionally, Fulbrook seeks to further explore the idea of concepts and examine the degree to which paradigms are flexible in relation to them. Finally, Fulbrook argues that historians ought to be aware of and transparent in their use of concepts.
+
+Fulbrook then contrasts the nature of concepts in the so-called "hard" sciences to those of social sciences such as history, coming to the conclusion that the concepts applied to the former are generally agreed upon by those who use them while in the latter the opposite is true. In the case of the social sciences, there are simply too many subjective impositions placed on the particular subject matters being examined by the social scientist. Simply accepting this as "just how it is" and not giving it much more thought, for Fulbrook, is a mistake.
+
+Fulbrook goes on to restate the thesis of the inescapability of these concepts, and characterize them as largely contraversial with one another, both over time and contemporaneously to one another as a result of various factors, such as cultural assumptions, implicit political connotations, etc. Finally, Fulbrook explains how the idea of these concepts as a linguistic construct contributes to the contentions.
+
+Historians also disagree on whether their job is to understand historical events and phenomena in terms of how contemporaries of the time would have understood them, or to pick out the aspects of these historical phenomena which reveal the most to them. Historians need to be careful not to think of history too much in terms of how they believe the "protagonists of the time" understood them, as well as to be cautious when applying concepts of our time to the past. Both are also paradoxically appropriate to do, likewise if the historian is cautious in doing so.
+
+The historian can either be conscious or ignorant of the concepts which they employ, but the latter doesn't cause the concepts to cease to be. "Theory-drenched concepts" are those which make explicit the theory which defines them, i.e. Marxism being a theory which self-consciously defines how Marxists understand history. Concepts, by their nature, are often also self-contradictory. Concepts lead to the categorization of history, and there is likewise disagreement as to whether this categorization reveals any information about historical reality or if they are merely artificial constructs being imposed on the past.
+
+The most important thing for Fulbrook is being aware of all of this and transparent in your working with history and use of concepts and paradigms to that end.
+
+All the variability of concepts as summarized above similarly exist when analyzing and interpreting evidence for historical phenomena and events. The solution herein, for Fulbrook is some sort of middle ground between "naive empiricism" and the understanding of extreme postmodernism of history as fiction. 
+
+Despite disagreeing with postmodernists who call empiricists "fools" in essence for believing that sources can provide truth about the past, Fulbrook does concede that postmodernists do raise a valid challenge for empiricists regarding the relationship between facts which are true about the past when understood individually, and the overall narratives the empiricists construct from them.
+
+Fulbrook argues that the relationship between evidence and narrative are neither arbitrary nore merely derived from personal assumptions, but rather, lies somewhere in between. This is shown by Fulbrook by analyzing examples such as the French Revolution and the Holocaust. The book moving forward seeks to find where this intermediate point between the two lies.
+
+To what degree can the conflicts raised in these two chapters be truly solved? To what degree can the gaps between the issues of sources, narratives, concepts, and reality be bridged in a field of study focused on things which no longer are?
