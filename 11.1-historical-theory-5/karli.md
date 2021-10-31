@@ -32,6 +32,7 @@
 
 **FRIEND**:  Oh, I see what you mean.  You have to be able to handle criticism of your findings in order to present something that is objective.  This Mary Fulbrook sounds like a tough debater, but she does raise some interesting points.
 
+
 *Questions I still have:*
 
 Fulbrook admits her own writings are constructed on a paradigm.  Would it be better if all historians conceded to this idea and were open about?
