@@ -15,7 +15,6 @@ Emotional involvement is a powerful tool that invokes action towards further pur
 
 Postmodernists argue against “the possibility of finding is rather just imposing stories; however, historical representations are just representations of selected features, not an attempted reproduction of some mythical and unattainable totality” (152). Fulbrook says that although “historians artificially construct the beginnings of theirs stories; and may construct these beginnings in very different ways” (157) Style and technique is different from questions of testability and truth, but this does not make the accounts just literature, the point is transmission. It's all about making choices, whether it is to try to be neutral or devise. 
 
- 
 Chapter 9 
 The common appeal to evidence fallacy that Fulbrook is trying to dissolve is that readers of history must be able to question historical objectivity by questioning and debating the interpretations and sources.  
 
@@ -26,5 +25,3 @@ This produces a question then of cultural appropriation, can historians that do 
 All degrees of perspectives have subjectivity and personal preferences in which they employ to redefine objectivity in diverse approaches. Paradigms to some extent speak across language communities. It all depends on the theoretical approach taken. Concerns are different person to person and choosing a framework will factor these assumptions into the equation. The key is to be open to change in the light of new evidence and arguments, however, “the burden of explanation will come to rest in different places” (183). 
 
 More sources does not mean that the evidence is more objective. We must remember that “facts are a result of the historians own political or other views” (170). These facts are based on the historians' values and morals, which dictated what type of research they do. Regardless, facts must conform to rules of evidence and either stand or fall upon disconfirmation. Some sources may have not had that treatment or have been left unquestioned. As things change and more evidence is brought to light, some sources and citations are more examples of past interpretations rather than present. Sources must be critically examined to determine reliability and relevance to the assumption and interpretation.  
-
- 
