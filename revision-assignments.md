@@ -1,6 +1,6 @@
 ## AVAILABLE ESSAYS
 
-- Polybius (Jackie)
+- Polybius - Jackie
 - Reforming History
 - The Dunning School
 - The Annales School
