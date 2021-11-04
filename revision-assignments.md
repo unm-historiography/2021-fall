@@ -5,7 +5,6 @@
 - The Dunning School
 - The Annales School
 - Fernand Braudel
-- Early Feminist History
 - Eurocentrism
 - History Wars
 - Postcolonialism
