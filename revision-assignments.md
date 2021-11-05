@@ -7,6 +7,6 @@
 - Fernand Braudel
 - Eurocentrism
 - History Wars
-- Postcolonialism-Donnie 
+- Postcolonialism - Donnie 
 - Historical Truth
 - Professional History
