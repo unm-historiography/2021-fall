@@ -1,7 +1,7 @@
 ## AVAILABLE ESSAYS
 
 - Polybius - Jackie
-- Reforming History
+- Reforming History - Gilbert
 - The Dunning School
 - The Annales School
 - Fernand Braudel
