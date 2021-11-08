@@ -5,7 +5,7 @@
 - donnie - 
 - eric - 
 - francisco -
-- fred - metahistory - [mytitle](http://unm-historiography.github.io/metahistory)
+- fred - a brief descripion here - [my working title](http://unm-historiography.github.io/metahistory)
 - gilbert - 
 - hannah - 
 - heath - 
