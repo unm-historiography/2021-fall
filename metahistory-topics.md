@@ -1,20 +1,21 @@
-alex - 
-andrew - 
-cheryl - 
-christopher - 
-donnie - 
-eric - 
-francisco - 
-gilbert - 
-hannah - 
-heath - 
-jackie - 
-jeremy - 
-karli - 
-kelly - 
-michael - 
-michaelm - 
-monte - 
-red - 
-sadie - 
-sloan - 
+- alex - 
+- andrew - 
+- cheryl - 
+- christopher - 
+- donnie - 
+- eric - 
+- francisco -
+- fred - metahistory - [mytitle](unm-historiography.github.io/metahistory)
+- gilbert - 
+- hannah - 
+- heath - 
+- jackie - 
+- jeremy - 
+- karli - 
+- kelly - 
+- michael - 
+- michaelm - 
+- monte - 
+- red - 
+- sadie - 
+- sloan - 
