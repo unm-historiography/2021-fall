@@ -1,7 +1,7 @@
 - alex - microhistory
 - andrew - early american revolutionary history
 - cheryl - oral history as evidence
-- christopher - medieval russian historiography
+- christopher - medieval russian czarist historiography
 - donnie - narrativity
 - eric - russian historiography (empire to soviet union) 
 - francisco - civil war 
