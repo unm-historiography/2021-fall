@@ -2,7 +2,7 @@
 
 - Polybius - Jackie
 - Reforming History - Gilbert
-- The Dunning School
+- The Dunning School - Cheryl
 - The Annales School
 - Fernand Braudel
 - Eurocentrism
