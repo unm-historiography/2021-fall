@@ -1,21 +1,21 @@
-- alex - 
-- andrew - 
-- cheryl - 
-- christopher - 
-- donnie - 
-- eric - 
-- francisco -
+- alex - microhistory
+- andrew - early american revolutionary history
+- cheryl - oral history as evidence
+- christopher - medieval russian historiography
+- donnie - narrativity
+- eric - russian historiography (empire to soviet union) 
+- francisco - civil war 
 - fred - a brief descripion here - [my working title](http://unm-historiography.github.io/metahistory)
-- gilbert - 
+- gilbert - petrarch
 - hannah - 
-- heath - 
-- jackie - 
-- jeremy - 
-- karli - 
-- kelly - 
-- michael - 
-- michaelm - 
-- monte - 
-- red - 
-- sadie - 
-- sloan - 
+- heath - marxist historiography
+- jackie - romantic history
+- jeremy - spanish enlighenment
+- karli - archival theory
+- kelly - historical film (esp accuracy)
+- michael - byzantine historiography
+- michaelm - totalitarian historiography
+- monte - scottish enlightenment
+- red - comparative national history
+- sadie - max weber
+- sloan - medieval historiography
