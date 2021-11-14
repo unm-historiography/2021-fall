@@ -1,0 +1,11 @@
+## Public Hisory
+One of the challenges of doing public history is that it is not clearly defined on what public history is. This leads to people not really knowing what public history is, but a definition also leads public history to resemble the ivory tower that they are trying to escape from. The other issue is that there are many different ways for people to practice public history that it changes from region to region. The other issue with public history is that there is not many practices or theories that many criticize public history for but as Tomas Cauvin stated that public history should not just be a study but needs to be a practice and collaborate with audiences. 
+
+I think that international public history is desirable and possible especially when talking about major international historical incidents. Where having people on both sides put forth their evidence and help the historian with how one community saw the past and comparing to how the other community saw the same event and so forth. An example would be the different thought on the Hindenburg accident or the Titanic. That would lead to more discussion on asking why particular communities thought one way or another. 
+
+One of the challenges of implanting for example identify what paradigm that the historian is using is that because it is a collaboration with many people the historian can be open with the people collaborating with them, but it is harder to put that into words for the masses and to put that in words that the common person would understand what the historian is trying to say. A potential solution to this is that the historian will have to use less jargon and really in a matter of very few words give the people an understanding of where you are coming from. Basically, putting very in front of the public face that this is a “insert the historian paradigm here” when it comes to the work. Even holding seminars and other public venues taking about the general different paradigms in very broad terms so that the public is aware of the basics of some historical approach. 
+
+## Questions
+Does Public history need a clear definition, or can it still be ambiguous?
+
+Why do you think it seems like the Professional historian is threated by public history?
