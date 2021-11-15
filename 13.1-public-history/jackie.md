@@ -1,0 +1,15 @@
+## Public History
+
+ I found Cauvin's article truly enjoyable. Particularly because it was refreshing to actually grasp the content of the article after really trudging through Fulbrook's book, but also because I am interested in the public history sphere as a potential career path. 
+ 
+ Cauvin notes several challenges that public history presents. The first is that there is not a concise or widely accepted definition of what public history actually *is*. In this instance how is a person, professional historian or otherwise, expected to meet the standards *doing* public history? In this same vein, Cauvin brings up the difficulties of defining public history on an international scale. "Public" can have very different connotations in certain countries which could potentially lay inappropriate national associations and lead to more confusion. 
+ 
+Additionally, there have been plenty of critiques launched at public history throughout the years. Cauvin notes that there are certain historians who argue that "history has always been a public act"(Cauvin,32; Grele 1981), and so why does it need some fancy new name and methodology? They propose that history has always been made available for the public to access. This argument is interesting, because the proponents of it aren't exactly wrong, but they are certainly misguided and ignorant of lives of the majority of the history consuming public. Cauvin argues, and I agree, that this way of viewing public history is from a very "top-down" approach. Although these professional historians believe that their work gets disseminated to the public, which it does, it is usually only a very select and privileged public. 
+
+Another critique that I found almost funny was "public history is not history, it is communication." Yes, of course it is. But communication (usually) isn't just some baseless thing. It has form and content and is a vessel in which to disemminate information. Public history is interesting because it provides different ways to communicate historical ideas, reasearch, etc. rather than just by academic articles which are less accessible to the layman. Public history, and even historcal practice in general, is allowed to be both history **and** communication.
+
+What I loved about this article, and what I find so interesting about public history is its sense of collaboration, open discussion, and non-traditional learning. Although public history may be more at risk or producing content or practicioners who are not as well versed in historical ethics or methodology, the overall outcome is not automatically improper historical practice. An amateur historian, or non-academic historian can still practice sound ethical historical research and impart those techniques and interpretive protocols onto others. What they are doing in the process is making history more accessible to a wider audience. 
+
+A few questions:
+1. Is the goal of academic historians and public historians the same? Is it possible for them to work together?
+2. Does a cohesive definition of public history actually matter? 
