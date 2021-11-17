@@ -1,0 +1,15 @@
+# Bibliography 
+## Source 1
+Neville, Leonora. *Guide to Byzantine Historical Writing*. Cambridge: Cambridge University Press. 2018.
+
+This is a source designed to guide the reader through the histories written in the Byzantine Empire between the beginning of the 7th century up until the end of the 15th century. It explains clearly the styles of these written Greek histories, whether they be in the form of chronicles, or in other styles particular or unique to Greek or Byzantine historian in question, so as to make each history both more apprachable and more understandable to the current-day historian. Furthermore it contextualizes the written histories of the Byzantine era, to give the reader insight into what is known about each particular history which is discussed. It also acts as an introduction to the methodalogies used by Byzantine historians, so act as a training tool for historians interested in Byzantine historiography.
+
+## Source 2
+Lilie, Ralph-Johannes. "Reality and Invention: Reflections on Byzantine Historiography," *Dumbarton Oaks Papers* Vol. 68 (2014): 157-210
+
+This source discusses how Byzantine historiography necessarily shapes our view of Byzantine history. This source, in its discussion of this matter, likewise touches on some of the topics and themes that have been present throughout the course of the semester, namely, the degree to which written histories reflect the "truth" and the postmodernist ideo of history as fictive constructions of the human imagination. The author comes to the conclusion that the issue of Byzantine historiography is not that it consists of purely fiction constructions of the human imagination, but rather, that it is difficult discern the true accuracy of the accounts written at this time about particular individuals or events, especially if one is not familiar with the idiosyncrasies of Byzantine historiography. As such, the author argues finally that Byzantine sources ought to be analyzed and evaluated more critically.
+
+## Source 3
+Treadgold, Warren. *The Early Byzantine Historians*. Basingstoke, England; New York: Palgrave Macmillan. 2007.
+
+This source takes a look at Byzantine historiography, that is, the history of Byzantine history through the works of Byzantine historians ranging from Eusebius of Caesarea beginning in the latter half of the third century to the end of the former half of the seventh century with Theophylact Simocatta. The author discusses these historians and their talents, such as their abilities to write, think, and engage with their audiences through their personalities as conveyed through the texts of their works. Finally, the author describes how each of these indivdual historians served, through their writings, to influence the culture of the Byzantine Empire at the times which they were writing, but also how they continue to serve to shape our current-day perceptions of Byzantine history at large. 
