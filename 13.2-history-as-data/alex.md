@@ -1,0 +1,9 @@
+## Quantitative history
+I do not see that quantitative history as fundamentally different form traditional history. This is because both relay on sources and conducting historical research to find a historical narrative to the past. Now quantitative history is different but is not drastically different then histories that we have looked at earlier in the class. Both are trying to be more scientific in how they look at the past. The biggest difference between quantitative and traditional history is that quantitative history breaks people down to numbers while traditional history does not. Going back to Renaissance historical writing one of the applications of history was to show how not to fall to the same tragedies that fell other civilizations in the past. Quantitative history is trying to do the same thing but slightly different by being more math based then historical narrative way of explaining. 
+
+I do not see that quantitative history really conflicts much with some of the uses that we have talked about. It reminds me of the conversation on Renaissance historical writing and also with the wanting to make history more scientific of latter centuries. Quantitative history also goes back to the cyclical thought of history from the Greco-Roman times where they thought that history was cyclical.  Where the issue comes up is that not all history comes from conflict and only using conflict will limit the sources and how the historian conducts and writes his history. So quantitative history starts to conflict with critical and romantic history and the ability to tell narratives of the past and forces the past into nothing more than numbers and removes any historical narratives that a historian talks about. 
+
+## Questions
+Has quantitative history gone full circle back to how people thought of history back in the Greco-Roman time?
+
+What are the dangers of boiling people down to just numbers?
