@@ -6,3 +6,6 @@ Sanders, Thomas. Historiography of imperial Russia : the profession and writing 
 
 This book is a great overview of Imperial Russian Historiography. It has a lot of biographical information about many of the great historians in the empire but the trouble is that as an empire, there are so many historians. Some I have come across as highly important but how to choose who is the most important, will take more research. This book is really good because it has perspectives of historiography from many of the ethnicities within the empire which would have influenced there writings.
 
+Saunders, David. The Political Ideas of Russian Historians. The Historical Journal , Sep., 1984, Vol. 27, No. 3, pp. 757-771. 1984
+
+This article is research and rebuttal to many of the biggest named Russian historians. Saunders reviews the works of several historians from empire to the early-middle USSR and gives understanding to why and how their politics influenced their historical writing. This article will help give perspectives on why they may have written what they did. I think Saunders breaks down the time periods into more understandable categories. 
