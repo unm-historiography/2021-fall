@@ -15,3 +15,6 @@ The prevailing response among historians in the Third Reich was an "unpolitical"
 
 ---
 ### Herf, Jeffrey and Mazal Holocaust Collection. *Divided Memory: The Nazi Past in the Two Germanys*. Cambridge, Mass.: Harvard University Press, 1997.
+
+---
+### Kershaw, Ian. *The Nazi Dictatorship: Problems and Perspectives of Interpretation.* London; Baltimore, Md.: E. Arnold, 1985.
