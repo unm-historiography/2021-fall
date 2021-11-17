@@ -1,17 +1,1 @@
 # Bibliography
-### Evans, Richard J. *The Third Reich in Power*. New York, NY: Penguin Books, 2006. 
-This source provides an overview of the historical profession under the Third Reich as well as numerous citations for further research. 
-
-The purpose of history in primary schools was seen as a means to instill National Socialist principles in a new generation of young Germans. History was to be at the forefront of education in the new Reich, to teach that race and blood were central to everything that happened in the past, present, and future. There was a focus on the primacy of struggle and leadership in determining the fate of peoples. Central themes included courage in battle, sacrifice for a greater cause, boundless admiration for the Leader and a hatred of Germany's enemies, specifically the Jews. This agenda was extended to university education, and additional chairs and institutes in military history and prehistory were founded at several universities. Idealougues such as Alfed Rosenberg damanded that history should become a form of political propaganda and indoctrination. In spite of these efforts, traditional history methodologies in large part survived in German universities thanks to their complexity and sophistication, proving difficult for categorization by crude Nazi ideology.
-
----
-### Schulze, Winfried. “German Historiography from the 1930s to the 1950s.” In *Paths of Continuity*, edited by Hartmut Lehmann and James Van Horn Melton, 1st ed., 19–48. Cambridge University Press, 1994.
-This source further expands on Nazification efforts of the historical profession in the 1930s, as well as post-war reactions to the Nazi period.
-
-The prevailing response among historians in the Third Reich was an "unpolitical" affectation of outward conformity and a retreat into less controversial historical topics of investigation and research. Despite not a single professor of history being a member of the Nazi party before 1933, none left the history profession voluntarily following the Nazi takeover. The traditionally conservative consensus of the profession proved amicable to a national or "folkish" reorientation of the profession. Most historians were national-conservatives whose beliefs somewhat overlapped with the National Socialist movement. Tellingly, while many condemned acts of racial violence and other social injustices perpetrated by the regime, most historians supported other government policies, especially those related to territorial expansion. For many historians, patriotism was seen as unpolitical, as was the belief that the First World War was not caused by Germany. Medieval Germany's eastward migration was also taken for granted as an essentially "civilizing" venture.
-
----
-### Arthurs, Joshua. *Excavating Modernity: the Roman Past in Fascist Italy*. Ithaca: Cornell University Press, 2012.
-
----
-### Herf, Jeffrey and Mazal Holocaust Collection. *Divided Memory: The Nazi Past in the Two Germanys*. Cambridge, Mass.: Harvard University Press, 1997.
