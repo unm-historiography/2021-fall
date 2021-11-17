@@ -12,3 +12,6 @@ The prevailing response among historians in the Third Reich was an "unpolitical"
 
 ---
 ### Arthurs, Joshua. *Excavating Modernity: the Roman Past in Fascist Italy*. Ithaca: Cornell University Press, 2012.
+
+---
+### Herf, Jeffrey and Mazal Holocaust Collection. *Divided Memory: The Nazi Past in the Two Germanys*. Cambridge, Mass.: Harvard University Press, 1997.
