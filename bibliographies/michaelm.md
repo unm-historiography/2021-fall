@@ -28,3 +28,6 @@ The response of Germany's professional historians to the Nazi takeover was surpr
 
 ---
 ### Berger, Stefan, Mark Donovan, and Kevin Passmore. *Writing National Histories: Western Europe Since 1800*. London; New York: Taylor & Francis Group, 1999.
+
+---
+### Schönwälder, Karen. “The Fascination of Power: Historical Scholarship in Nazi Germany.” History Workshop Journal 43, no. 1 (March 1, 1997): 133–53.
