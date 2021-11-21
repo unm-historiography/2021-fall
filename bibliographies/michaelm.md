@@ -22,4 +22,3 @@ The response of Germany's professional historians to the Nazi takeover was surpr
 
 ---
 ### Sims, Amy R. “Intellectuals In Crisis: Historians Under Hitler | VQR Online.” Accessed November 20, 2021. [access article](https://www.vqronline.org/essay/intellectuals-crisis-historians-under-hitler).
-(article by historian of Nazi Germany, currently writing a book on historians under the Third Reich)
