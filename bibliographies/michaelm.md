@@ -21,4 +21,10 @@ The response of Germany's professional historians to the Nazi takeover was surpr
 (requested on ILL)
 
 ---
-### Sims, Amy R. “Intellectuals In Crisis: Historians Under Hitler | VQR Online.” Accessed November 20, 2021. [access article](https://www.vqronline.org/essay/intellectuals-crisis-historians-under-hitler).
+### Sims, Amy R. “Intellectuals In Crisis: Historians Under Hitler.” VQR (1978). [access](https://www.vqronline.org/essay/intellectuals-crisis-historians-under-hitler)
+
+---
+### Lehmann, Hartmut, and James Van Horn Melton. *Paths of Continuity: Central European Historiography from the 1930s to the 1950s*. Washington, D.C.; Cambridge [England]; New York: German Historical Institute ; Cambridge University Press, 1994.
+
+---
+### Berger, Stefan, Mark Donovan, and Kevin Passmore. *Writing National Histories: Western Europe Since 1800*. London; New York: Taylor & Francis Group, 1999.
