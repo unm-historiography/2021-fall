@@ -26,3 +26,6 @@ Eissenstat, Bernard W. M. N. Pokrovsky and Soviet Historiography: Some Reconside
 
 This article is about one of the larger Soviet historians, Mikhail Nikolaevich Pokrovsky. Pokrovsky is a good example of how the Soviet Union loved a character but then completely despised him. He eventually made it back into good graces of the people though. Pokrovsky’s influence on Soviet history is great which is why he was blamed for a lot of things, such as the purges, since he was in charge. The downfall to this is that the article is much older so there may be some new revelations about Pokrovsky.
 
+Enteen, George M. etc. Soviet Historians and the Study of Russian Imperialism. The Pennsylvania State University Press. 1979
+
+This short book offers an examination of how Soviet historians wrote about the Russian Empire. There was a great deal of politics that affected the way historians wrote about the subject. In a relatively recent period after a revolution, politics is going to have a huge effect on what can be written about the past. This book has a good breakdown of the historical debate that was raging among historians of the time. Like some of my other sources, this book is older and may not have a great deal of up to date information but a solid baseline.
