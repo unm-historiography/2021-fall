@@ -17,3 +17,7 @@ I am just getting started in this book but there is a great deal of information 
 Mazour, Anatole.  Modern Russian Historiography.  Greenwood Press. 1975
 
 This book may be an older, but it is about the right time period that I am writing about. It starts with the 17th century and ends with the early era of the Soviet Union. As stated in the earlier post, there have been new discoveries but not a lot has changed which is why I am comfortable with using this text. There may be some information that has changed since publication but the main ideas I need are there. The break down of periods and the defining of when “Russian Historiography Comes of Age” will be extremely helpful. I have seen several influential names appear in this text that I have seen in others which will help me focus my writing.
+
+White, James D. Leon Trotsky and Soviet Historiography of the Russian Revolution (1918–1931). Informa UK Limited. 2021
+
+This article is great because it is sort of about an anti-Stalin figure, Leon Trotsky, that basically setup the way the Soviet conducting history. Trotsky is responsible for how the revolution was presented to the public but this article will give that opposition view, to Stalin, of how the revolution occurred. I do not want to have a “both sides” argument but this will shed light on a major event in Russian history and historiography.
