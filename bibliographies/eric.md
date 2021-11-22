@@ -29,3 +29,11 @@ This article is about one of the larger Soviet historians, Mikhail Nikolaevich P
 Enteen, George M. etc. Soviet Historians and the Study of Russian Imperialism. The Pennsylvania State University Press. 1979
 
 This short book offers an examination of how Soviet historians wrote about the Russian Empire. There was a great deal of politics that affected the way historians wrote about the subject. In a relatively recent period after a revolution, politics is going to have a huge effect on what can be written about the past. This book has a good breakdown of the historical debate that was raging among historians of the time. Like some of my other sources, this book is older and may not have a great deal of up to date information but a solid baseline.
+
+
+
+The one source that we talked about for this class that comes to mind is by Dipesh Chakrabarty. It is not exactly the same as what Chakrabarty is describing in his article, but they are similar in that we are trying to write about a subject we are not truly part of. A westerner trying to write about another country’s history is difficult as it is, especially when it is a country that you have grown up to have somewhat hostile views towards when they have always been portrayed as the “bad guys”.
+
+The other article that will be helpful is the Schwartz and Cook article about the power of archives. The Soviet Union was highly protective of their archives and modern-day Russia is as well. They generally did and do not want outsiders to access them. The Soviet regime used the archives to shape a powerful government through their histories.
+
+The What is History For? articles will help give an idea what the Soviets were doing with the histories they were writing. The historians had to have a purpose when writing them. They were myth-breaking when they shaped history to a Marxist view, but they were more focused on creating political support for their cause. Soviet political power was built on history.
