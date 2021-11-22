@@ -9,3 +9,7 @@ This book is a great overview of Imperial Russian Historiography. It has a lot o
 Saunders, David. The Political Ideas of Russian Historians. The Historical Journal , Sep., 1984, Vol. 27, No. 3, pp. 757-771. 1984
 
 This article is research and rebuttal to many of the biggest named Russian historians. Saunders reviews the works of several historians from empire to the early-middle USSR and gives understanding to why and how their politics influenced their historical writing. This article will help give perspectives on why they may have written what they did. I think Saunders breaks down the time periods into more understandable categories. 
+
+Gleason, Abbott. A Companion to Russian History. Blackwell Publishing. 2009
+
+I am just getting started in this book but there is a great deal of information about different Russian time periods in it. When it comes to Soviet and Russian history, I found this quote to be very poignant “New information from the archives has not essentially changed the larger outlines of Soviet history, but new details abound and the Soviet borderlands have been more dramatically affected than the heartland.” This book has a more modern approach to Russian history that I have not been able to find elsewhere. The downfall is that there is only one short historiographical essay with the rest mainly being about just the history.
