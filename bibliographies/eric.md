@@ -13,3 +13,7 @@ This article is research and rebuttal to many of the biggest named Russian histo
 Gleason, Abbott. A Companion to Russian History. Blackwell Publishing. 2009
 
 I am just getting started in this book but there is a great deal of information about different Russian time periods in it. When it comes to Soviet and Russian history, I found this quote to be very poignant “New information from the archives has not essentially changed the larger outlines of Soviet history, but new details abound and the Soviet borderlands have been more dramatically affected than the heartland.” This book has a more modern approach to Russian history that I have not been able to find elsewhere. The downfall is that there is only one short historiographical essay with the rest mainly being about just the history.
+
+Mazour, Anatole.  Modern Russian Historiography.  Greenwood Press. 1975
+
+This book may be an older, but it is about the right time period that I am writing about. It starts with the 17th century and ends with the early era of the Soviet Union. As stated in the earlier post, there have been new discoveries but not a lot has changed which is why I am comfortable with using this text. There may be some information that has changed since publication but the main ideas I need are there. The break down of periods and the defining of when “Russian Historiography Comes of Age” will be extremely helpful. I have seen several influential names appear in this text that I have seen in others which will help me focus my writing.
