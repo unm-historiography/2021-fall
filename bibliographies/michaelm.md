@@ -15,7 +15,8 @@ The response of Germany's professional historians to the Nazi takeover was surpr
 
 ---
 ### Lambert, Peter. “German historians and Nazi ideology: the parameters of the Volksgemeinschaft and the problem of historical legitimation, 1930-45.” European History Quarterly 25, no. 4 (1995).
-(requested on ILL)
+
+Historians sought to legitimize Nazi hegemonic aspirations by portraying these as a natural evolution of historical German trends. Though there was widespread affinity between the Nazi regime and historians' worldviews, the historian's conception of *Volksgemeinschaft* (people's community) differed from the Nazi view, especially with regards to race and religion. However, the shared paradigm precluded historians from taking a clearly oppositional stance to the values of the regime.
 
 ---
 ### Sims, Amy R. “Intellectuals In Crisis: Historians Under Hitler.” VQR (1978). [access](https://www.vqronline.org/essay/intellectuals-crisis-historians-under-hitler)
@@ -24,6 +25,8 @@ Professors at German universities enjoyed great prestige as well as powerful pos
 
 ---
 ### Lehmann, Hartmut, and James Van Horn Melton. *Paths of Continuity: Central European Historiography from the 1930s to the 1950s*. Washington, D.C.; Cambridge [England]; New York: German Historical Institute ; Cambridge University Press, 1994.
+
+*Paths of Continuity* examines the lives and work of ten prominent German historians before and after 1945: Friedrich Meinecke, Gerhard Ritter, Hans Rothfels, Franz Schnabel, Heinrich Ritter von Srbik, Hans Freyer, Hermann Aubin, Otto Brunner, Werner Conze, and Theodor Schieder. Though they differed in their approaches to National Socialism, some as willing participants in the new Germany and others only reluctant, interestingly those most removed from the regime before 1945 were also those most resistant to change following the end of the war, while conversely those most associated with Nazi historical psuedo-theories during the war were also those most keen to revise German historical methodology.
 
 ---
 ### Berger, Stefan, Mark Donovan, and Kevin Passmore. *Writing National Histories: Western Europe Since 1800*. London; New York: Taylor & Francis Group, 1999.
