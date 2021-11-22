@@ -21,3 +21,8 @@ This book may be an older, but it is about the right time period that I am writi
 White, James D. Leon Trotsky and Soviet Historiography of the Russian Revolution (1918–1931). Informa UK Limited. 2021
 
 This article is great because it is sort of about an anti-Stalin figure, Leon Trotsky, that basically setup the way the Soviet conducting history. Trotsky is responsible for how the revolution was presented to the public but this article will give that opposition view, to Stalin, of how the revolution occurred. I do not want to have a “both sides” argument but this will shed light on a major event in Russian history and historiography.
+
+Eissenstat, Bernard W. M. N. Pokrovsky and Soviet Historiography: Some Reconsiderations. Slavic Review, Vol. 28, No. 4, pp. 604-618. 1969
+
+This article is about one of the larger Soviet historians, Mikhail Nikolaevich Pokrovsky. Pokrovsky is a good example of how the Soviet Union loved a character but then completely despised him. He eventually made it back into good graces of the people though. Pokrovsky’s influence on Soviet history is great which is why he was blamed for a lot of things, such as the purges, since he was in charge. The downfall to this is that the article is much older so there may be some new revelations about Pokrovsky.
+
