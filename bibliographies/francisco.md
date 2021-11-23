@@ -19,3 +19,10 @@ Inscoe, John C., and Robert C. Kenzer. Enemies of the Country: New Perspectives 
 Royster, Charles. The Destructive War: William Tecumseh Sherman, Stonewall Jackson and the Americans. New York: Vintage civil war library, 1993. 
 
 Wynalda, Stephen A. 366 Days in Abraham Lincoln's Presidency: The Private, Political, and Military Decisions of America's Greatest President. New York: Skyhorse Publishing, 2014. 
+
+SHEEHAN-DEAN, AARON. “The Long Civil War: A Historiography of the Consequences of the Civil War.” The Virginia Magazine of History and Biography 119, no. 2 (2011): 106–53. http://www.jstor.org/stable/41310737.
+
+Horwitz, Joshua, and Casey Anderson. “THE CIVIL WAR AND RECONSTRUCTION.” In Guns, Democracy, and the Insurrectionist Idea, 118–36. University of Michigan Press, 2009. https://doi.org/10.2307/j.ctv3znzcm.9.
+
+
+
