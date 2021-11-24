@@ -17,5 +17,5 @@
 - michaelm - totalitarian historiography
 - monte - scottish enlightenment
 - red - comparative national history
-- sadie - max weber
+- sadie - max weber: captialism, charismatic leaders, and ideal types https://sbaca505.github.io/metahistory/essays/modern/max-weber.html 
 - sloan - medieval historiography
