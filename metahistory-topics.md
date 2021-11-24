@@ -11,7 +11,7 @@
 - heath - marxist historiography
 - jackie - romantic history
 - jeremy - spanish enlighenment
-- karli - archival theory
+- karli - archival theory https://snyderk1.github.io/metahistory/essays/thematic/archival-theory.html
 - kelly - historical film (esp accuracy)
 - michael - byzantine historiography
 - michaelm - totalitarian historiography
