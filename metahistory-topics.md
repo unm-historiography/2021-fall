@@ -2,7 +2,7 @@
 - andrew - early american revolutionary history
 - cheryl - oral history as evidence
 - christopher - medieval russian czarist historiography
-- donnie - narrativity
+- donnie - narrativity- https://github.com/Donniemd/metahistory/blob/master/essays/thematic/donnie.md
 - eric - russian historiography (empire to soviet union) 
 - francisco - civil war 
 - fred - a brief descripion here - [my working title](http://unm-historiography.github.io/metahistory)
