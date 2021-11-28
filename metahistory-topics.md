@@ -9,7 +9,7 @@
 - gilbert - petrarch
 - hannah - 
 - heath - marxist historiography
-- jackie - romantic history
+- jackie - romantic history - [Romanticism: A Brief Introduction to Romantic History](https://jackiebetrue.github.io/metahistory/essays/enlightenment/romantic-history.html)
 - jeremy - spanish enlighenment
 - karli - archival theory https://snyderk1.github.io/metahistory/essays/thematic/archival-theory.html
 - kelly - historical film (esp accuracy)
