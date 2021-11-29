@@ -19,3 +19,4 @@
 - red - comparative national history
 - sadie - max weber: captialism, charismatic leaders, and ideal types https://sbaca505.github.io/metahistory/essays/modern/max-weber.html 
 - sloan - medieval historiography
+- hannah - british empire historiography https://hbeck219.github.io/metahistory/essays/medieval/britishempire
