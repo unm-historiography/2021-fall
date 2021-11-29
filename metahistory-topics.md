@@ -16,7 +16,7 @@
 
 - alex - [microhistory](https://abris26.github.io/metahistory/essays/postmodern/Microhistory)
 - kelly -  [The Responsibility of Accuracy](https://kellysalaiz.github.io/metahistory/essays/thematic/historiography-film.html)
-- donnie [narrativity](https://sbaca505.github.io/metahistory/essays/thematic/donnie)
+- donnie [narrativity](https://donniemd.github.io/metahistory/essays/thematic/donnie)
 
 ---
 - jeremy - [spanish enlightenment](https://jortega8.github.io/metahistory/essays/enlightenment/spanishenlightenment)
