@@ -4,13 +4,12 @@
 ---
 
 - christopher - [medieval russian tsarist historiography](https://cjbeaudet.github.io/metahistory/essays/medieval/christopher-beaudet.html)
-- eric - [early soviet union historiography](https://unm-egalbiso1.github.io/metahistory/essays/modern/early-soviet-union-historiography)
+- eric - [early soviet union historiography](https://egalbiso1.github.io/metahistory/essays/modern/early-soviet-union-historiography.html)
 - heath - [marxist historiography](https://unm-HeathSkroch.github.io/metahistory/essays/thematic/Marxist-Historiography)
-
 ---
 
 - jackie - [Romanticism: A Brief Introduction to Romantic History](https://jackiebetrue.github.io/metahistory/essays/enlightenment/romantic-history.html)
-- sadie - [max weber](https://sbaca505.github.io/metahistory/essays/modern/max-weber.html )
+- sadie - [max weber](https://sbaca505.github.io/metahistory/essays/modern/max-weber.html)
 - red - [the great war](https://RedHart13.github.io/metahistory/essays/modern/The-Great-War)
 
 ---
