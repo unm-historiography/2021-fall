@@ -12,7 +12,7 @@
 - jackie - romantic history - [Romanticism: A Brief Introduction to Romantic History](https://jackiebetrue.github.io/metahistory/essays/enlightenment/romantic-history.html)
 - jeremy - spanish enlighenment
 - karli - archival theory https://snyderk1.github.io/metahistory/essays/thematic/archival-theory.html
-- kelly - historical film (esp accuracy)
+- kelly - historical film (esp accuracy) [The Responsibility of Accuracy](https://kellysalaiz.github.io/metahistory/essays/thematic/historiography-film.html)
 - michael - byzantine historiography [Byzantine Historiography](https://maguilar399.github.io/metahistory/essays/medieval/byzantinehistoriography.html)
 - michaelm - totalitarian historiography
 - monte - scottish enlightenment
