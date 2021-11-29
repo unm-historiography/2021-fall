@@ -1,22 +1,30 @@
-- alex - microhistory
-- andrew - early american revolutionary history
+- karli - [archival theory](https://snyderk1.github.io/metahistory/essays/thematic/archival-theory.html)
+- michael m - [Historiography of the Third Reich](https://unm-mendozam.github.io/metahistory/essays/modern/Historiography-of-the-Third-Reich.html)
+- michael a - [Byzantine Historiography](https://maguilar399.github.io/metahistory/essays/medieval/byzantinehistoriography.html)
+---
+
+- christopher - [medieval russian tsarist historiography](https://cjbeaudet.github.io/metahistory/essays/medieval/christopher-beaudet.html)
+- eric - [early soviet union historiography](https://unm-egalbiso1.github.io/metahistory/essays/modern/early-soviet-union-historiography)
+- heath - [marxist historiography](https://unm-HeathSkroch.github.io/metahistory/essays/thematic/Marxist-Historiography)
+
+---
+
+- jackie - [Romanticism: A Brief Introduction to Romantic History](https://jackiebetrue.github.io/metahistory/essays/enlightenment/romantic-history.html)
+- sadie - [max weber](https://sbaca505.github.io/metahistory/essays/modern/max-weber.html )
+- red - [the great war](https://RedHart13.github.io/metahistory/essays/modern/The-Great-War)
+
+---
+
+- alex - [microhistory](https://abris26.github.io/metahistory/essays/postmodern/Microhistory)
+- kelly -  [The Responsibility of Accuracy](https://kellysalaiz.github.io/metahistory/essays/thematic/historiography-film.html)
+- donnie [narrativity](https://sbaca505.github.io/metahistory/essays/thematic/donnie)
+
+---
+- jeremy - [spanish enlightenment](https://jortega8.github.io/metahistory/essays/enlightenment/spanishenlightenment)
+- hannah - [british empire historiography](https://hbeck219.github.io/metahistory/essays/medieval/britishempire)
 - cheryl - oral history as evidence
-- christopher - medieval russian tsarist historiography - https://cjbeaudet.github.io/metahistory/essays/medieval/christopher-beaudet.html
-- donnie - narrativity- https://github.com/Donniemd/metahistory/blob/master/essays/thematic/donnie.md
-- eric - russian historiography (empire to soviet union) 
-- francisco - civil war 
-- fred - a brief descripion here - [my working title](http://unm-historiography.github.io/metahistory)
-- gilbert - petrarch
-- hannah - 
-- heath - marxist historiography
-- jackie - romantic history - [Romanticism: A Brief Introduction to Romantic History](https://jackiebetrue.github.io/metahistory/essays/enlightenment/romantic-history.html)
-- jeremy - spanish enlighenment
-- karli - archival theory https://snyderk1.github.io/metahistory/essays/thematic/archival-theory.html
-- kelly - historical film (esp accuracy) [The Responsibility of Accuracy](https://kellysalaiz.github.io/metahistory/essays/thematic/historiography-film.html)
-- michael - byzantine historiography [Byzantine Historiography](https://maguilar399.github.io/metahistory/essays/medieval/byzantinehistoriography.html)
-- michaelm - totalitarian historiography
-- monte - scottish enlightenment
-- red - comparative national history
-- sadie - max weber: captialism, charismatic leaders, and ideal types https://sbaca505.github.io/metahistory/essays/modern/max-weber.html 
+- andrew - early american revolutionary history
 - sloan - medieval historiography
-- hannah - british empire historiography https://hbeck219.github.io/metahistory/essays/medieval/britishempire
+- gilbert - petrarch
+- monte - scottish enlightenment
+- francisco - civil war 
