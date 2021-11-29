@@ -13,7 +13,7 @@
 - jeremy - spanish enlighenment
 - karli - archival theory https://snyderk1.github.io/metahistory/essays/thematic/archival-theory.html
 - kelly - historical film (esp accuracy)
-- michael - byzantine historiography
+- michael - byzantine historiography [Byzantine Historiography](https://maguilar399.github.io/metahistory/essays/medieval/byzantinehistoriography.html)
 - michaelm - totalitarian historiography
 - monte - scottish enlightenment
 - red - comparative national history
