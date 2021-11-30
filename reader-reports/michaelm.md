@@ -14,7 +14,7 @@
 
 ### 10th Century Constantinian Historiography
 
-- Instead of leading with mentioning that this is less historiographical content to be discussed in this section and drawing attention to the essay I am reading, put the next sentence first, explaining that historical writing was sparse during the Constantinian era, but also explaining *why* if you can.
+- Instead of leading with mentioning that there is less historiographical content to be discussed in this section and drawing attention to the essay I am reading, put the next sentence first, explaining that historical writing was sparse during the Constantinian era, but also explaining *why* if you can.
 - Good paragraph on Constantine VII, maybe bold the part that mentions making learning of the past more accessible? 
 
 ### The Comnenian/Polaiologan Era
