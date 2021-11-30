@@ -60,11 +60,56 @@ A good essay with a lot of interesting information. I do think you need to inser
 ---
 
 
-# author 2
+# Karli Snyder
 
-- report
-- report
-- report
 
-narrative overview
+## Writing, Grammar, Spelling, and Sentence Structure
 
+### A Very Brief History of Archives
+
+- I probably wouldn't put "messages" in quotes because they *are* messages, even if scribbled on cave walls.
+- "as seen in places like..." rather than "as were seen in places like..."
+- "Classical Greeks and Romans..." rather than "Classical Greek and Romans..."
+- is it the Athenians' cities' (plural, Athenian empire) records or the Athenians' city's (singular, just Athens) records?
+- "because of the records'..." (plural) rather than "because of the record's..." (singular)
+- "Archivo General de Indias" should be *italicized*. Same with the *Archivo*.
+- "...reflected the Netherlands business..." Netherlands' (or Netherland's) needs an apostrophe
+
+### The Establishment of Archival Theories
+
+- "organizational rules" rather than "organization rules"
+- "the Scientific Method" rather than "scientific methods" as I think there is one Scientific Method. Or you could say "empirical methods" or "more scientific methods" or something like that.
+
+#### The Dutch Manual
+
+- "actually systematized" rather than "actual systematized" right? Because "systematized" is a verb and "actually" is the adverb modifying it.
+- "three main archival rules;" should be ended with a colon and not a semicolon. Maybe bold the rules? They seem important.
+- "Manual" should be _italicized_
+
+#### Sir Hilary Jenkinson and the Custodial Archivist
+
+- maybe bold "archival appraisal"?
+
+#### T.R. Schellenberg and the Rise of the Modern Archivist
+
+- bold "appraisal" here instead?
+- bold "uniqueness, form, and importance"?
+
+### Feminization of the Archival Profession
+
+- "which some employers felt were the qualities of the women employed in these fields." is kind of a clunky phrase
+- the following phrase appears self-contradictory:
+
+>women’s roles have become more prevalent in these academic fields, despite the skewed views that women were the best suited for these professions.
+ 
+ does "despite" really make sense here?
+ 
+ ## Final Thoughts
+ 
+There's not much to say in regards to narrative structuring. The essay flows well. I don't think the 'Feminization' section is out of place at all, and the connection between women and the archival profession is amply explained. I think this essay could benefit from using bolded words for important terms. I think the pictures could stand to be slightly larger, and their subtitles may need a little work to add some interesting tidbits of information. The subtitles are a good place to put information or short quotes that did not make the cut into the larger essay.
+
+The skip from Antiquity to medieval archives between the first and second paragraphs is a little jarring but not too bad---I think it would have been interesting to have something that ties Antiquity with the medieval era, some discussion of Late Antique archives or arhcival destruction with the collapse of Roman authority, etc.
+
+The _Dutch Manual_ section could benefit from a picture, it's a block of text at the moment.
+
+Great essay!
