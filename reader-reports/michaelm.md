@@ -40,7 +40,7 @@
 ### The Comnenian/Polaiologan Era
 - Why include "in a review of the work being added to the Penguin Classics collection"? I don't see the historiographic significance of whether the work is in the Penguin Classics collection or not. But maybe you can explain the significance I'm missing?
 - "highly regarded work can be regarded" - try not to use the same word within the same sentence (or even within adjacent sentences) if you can manage it. It's very clunky.
-- instead of inserting quotes from the authors you cite, try to paraphrase their points more. It's better to have direct quotes when the content is not so analytic as it is thematic or literary/metaphorical/symbolic. In other words:
+- instead of inserting quotes from the authors you cite, try to paraphrase their points more. It's better to have direct quotes when the content is not so explanatory/analytic as it is thematic or literary/metaphorical/symbolic. In other words:
 
 > “This work is an example of the traditional school of Byzantine historial writing in that it consists of an introductory summary of earlier history and a much fuller account of events contemporary with the author. But it departs from tradition in that it deals as much, or more, with ecclesiastical as with civil affairs.”
 
