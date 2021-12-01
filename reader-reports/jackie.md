@@ -20,7 +20,7 @@
 
 ### Interpretations of the Conduct of History
 - Break up the first sentence into two. Full stop after 'national liberal party.' Also explain what a huguenot and an absolutist is. Why did these things lead to his obsession of historical interpretation?
-- While the quote at the end of the first paragraph is informational, try rephrasing it into your own words. Also, if it is relevant to the rest of the essay, include why his work caused tension. 
+- While the quote at the end of the first paragraph is informational, try rephrasing it into your own words. Also, if it is relevant to the rest of the essay, include why his work caused tension, or remove it. 
 - Having stand alone quotes as single paragraphs are confusing. Try to link them other sentences which can support them and provide context. 
 - I don't understand the reference to England 1560-1640, Wurttemberg 1680-1780, and Prussia 1690-1740. There is a lot of jargon included in this section. 
 - It seems to me that the first and final paragraphs of this section go together a bit better, but that the middle sections are misplaced. I feel like you could include the first and last paragraph in an introductory section at the beginning of the essay. This way Weber and his background, as well as the political and social climate of the time is introduced before Weber's intellectual resposnses to them. 
