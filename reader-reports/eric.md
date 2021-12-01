@@ -21,23 +21,25 @@ Not sure where to possibly fit this is but did the Mongols have any influence on
 ---
 
 
-# author 2
+# Heath
 
-- report
-- report
-- report
-- report
-- report
-- report
-- 
-- report
-- report
-- report
-- - report
-- report
-- report
-- - report
-- report
-- report
+- A year for when “second communist congress in London” occurred would be helpful
+- “The Revolutions of 1848, attempts by the Germans to overthrow their authoritarian government” – “Revolutions” would indicate multiple but only one is defined. I recommend taking out the “attempts” sentence all together.
+- The first sentence in _Marxist Beliefs_ could be reworded. There is number (1) in the second paragraph which makes it seem like there is going to be a list there is only one item on the list.
+- Book titles need to be italicized.
+- Need page numbers for citations.
+- “In the case of Marxism this end goal is the end of poverty under the capitalist system.” Comma after Marxism. Possibly “the end goal is the eradication of…”?
+- “This ultimate” could be “The ultimate”
+- There are some missing commas.
+- Put a comma and take out “He here states”
+- _ Marxism and Government_ is an enormous section. There needs to be a break somewhere. I recommend making “Problems around the writing of history…” be the break.
+- Give Kautsky his years of life!
+- “he did such an impressive job” should be a new sentence.
+- “who did so much to popularize Marxism in the west that he earned the title “The Pope of Marxism.” Could be reworded.
+- First reference to Fan Wenlan should be a new paragraph.
+- There is an odd trend of some words being capitalized that do not need to be like opium, and others that should like Opium Wars.
+- When referencing a person, typically just the last name should be used. Last line in the China section, you refer to Wenlan as Fan, but with others you use only use their last name like Marx.
+- “1 million allied soldiers” = “one million Allied soldiers”
+- The bibliography needs more formatting.
 
-narrative overview
+Overall, this was a very well written essay. I had a firm grasp on the narrative throughout. There could be a lot more minor details such as years of events. For example, the conclusion of the occupation of Japan should have a year for reader context. I really like the country sections, but there should definitely be a section about Lenin and/or Russia. There is a good narrative about Marxism as a whole except the first section. Engles gets written about but what was his influence on Marxism? Why isn’t it called Englism? There should also be a conclusion paragraph summing up Marxist influence on history and in the various affected countries. 
