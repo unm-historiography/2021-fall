@@ -4,7 +4,7 @@ I am now more aware of the abstract nature of history. The ways in which the pas
 
 Some of the philosophies of history that we looked at were light bulb moments for me. Things such as circular history for example. Historians once thought we would reach a certain point only to start all over again. While this is not entirely true, it could be true in aspects of society or even someone’s personal life. Thus, we arrive back at perspective.
 
-Postmodern history was completely new to me as a concept. It makes perfect sense, but it also changes the outlook on history. In that as a student of history, one goes from a belief in events that happened to some hesitation in believing all that was once taught. Perspective gives something meaning and validation. It is that events past, not necessarily history though. 
+Postmodern history was completely new to me as a concept. It makes perfect sense, but it also changes, or can change, one’s outlook on history. I went from a belief in events that happened to some hesitation in believing all that was once taught. Perspective gives an event meaning and validation. 
 
 I enjoyed learning about those who helped bring History into a more scientific realm of study. Source material and footnotes being a huge part of the way we write today; it seems impossible to approach this subject without that as a component. People like Rank and Bancroft legitimized the study into something beneficial for the world, not just a past time hobby. 
 
