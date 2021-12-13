@@ -1,7 +1,7 @@
+### Course Reflection
 
 
-
-Before I go into the historiographical aspects of this class, I do admit a certain level of respect for markdown. Towards the beginning of the class, I definitely only saw it as a weird, extra step now being required for turning in work. Although its only a light understanding of the website code it does feel good simply knowing how to do things like make a heading bold. 
+Before I go into the historiographical aspects of this class, I do admit a certain level of respect for markdown. Towards the beginning of the class, I definitely only saw it as a weird, extra step now being required for turning in work. Although its only a light understanding of the website code it does feel good simply knowing how to do things like make a heading bold. (Thats why I put it on the title)
 
  
 
